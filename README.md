@@ -1,5 +1,7 @@
 HELP IN THIS GAME'S DEVELOPEMENT WOULD BE GREATLY APPRECIATED
 
+Contact: smallville7123@gmail.com
+
 ALPHA
 
 Super-Man Game
